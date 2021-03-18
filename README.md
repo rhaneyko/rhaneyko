@@ -1,8 +1,6 @@
 # Hey guys 😜
 Ei pessoal. Eu sou o Rhaneyko e sou mais um apaixonado por tecnologia.
 
-📍 Do PA morando em Cuiacity
-
 📚 Estudante de Engenharia da Computação 
 
   ##
