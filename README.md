@@ -1,7 +1,7 @@
-# rhaneykohonorio
-Ei pessoal. Eu sou rhaneyko🇧🇷 e sou mais apaixonado por tecnologia.
+# Rhaneyko 😜
+Ei pessoal. Eu sou o Rhaneyko e sou mais um apaixonado por tecnologia.
 
-📍 De PA morando em Cuiacity
+📍 Do PA morando em Cuiacity
 📚 Estudante de Engenharia da Computação 
 
   ##
