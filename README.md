@@ -1,7 +1,7 @@
 # Hey guys 😜
 Ei pessoal. Eu sou o Rhaneyko e sou mais um apaixonado por tecnologia.
 
-📚 Estudante de Sistemas de  Informaçaõ
+📚 Estudante de Sistemas de  Informação
 
   ##
   
