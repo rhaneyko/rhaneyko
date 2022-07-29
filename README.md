@@ -1,5 +1,5 @@
 # Hey guys 😜
-Ei pessoal. Eu sou o Rhaneyko e sou mais um apaixonado por tecnologia.
+Eu sou o Rhaneyko e sou mais um apaixonado por tecnologia.
 
 📚 Estudante de Análise e Desenvolvimento de Sistemas
 
